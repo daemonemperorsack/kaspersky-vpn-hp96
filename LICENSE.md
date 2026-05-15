@@ -1,4 +1,4 @@
-
+Enhance your Kaspersky VPN experience with ultimate Kaspersky VPN Module | streaming-optimization + kill-switch, the #1 module. Includes streaming-optimization and kill-switch for
 
 
 
